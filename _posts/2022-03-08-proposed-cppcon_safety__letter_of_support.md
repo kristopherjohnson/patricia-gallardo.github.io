@@ -249,6 +249,7 @@ Wladimir Palant <br>
 Michael Fleet <br>
 Øyvind Fanebust <br>
 Will Pearce <br>
+Kristopher Johnson <br>
 
 
 Ways to sign this letter:
